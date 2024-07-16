@@ -1,3 +1,7 @@
-✩₊˚.⋆ Hi, I'm Hannah ⋆.ೃ࿔*:･
+## ✩₊˚.⋆ Hi, I'm Hannah! ⋆.ೃ࿔*:･
 
-I am currently a Computer Science student @ Trinity College Dublin.
+₊˚ෆ Currently a Computer Science student @ Trinity College Dublin. ೄྀ࿐ ˊˎ-
+
+₊˚.⋆ Keep up to date with me on <a href="www.linkedin.com/in/hannahlluu">LinkedIn</a> ⋆⁺₊✧
+
+‎‧₊˚✧ Contact me at luuh@tcd.ie ✧˚₊‧
