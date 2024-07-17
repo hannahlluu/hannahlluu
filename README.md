@@ -2,7 +2,7 @@
 
 ### ₊˚ෆ Computer Science student @ Trinity College Dublin. ೄྀ࿐ˊˎ-
 
-###  ˚ ༘ ˚ Currently learnin<b>JavaScript</b>  ೀ⋆｡
+###  ˚ ༘ ˚ Currently learning<b>JavaScript</b>  ೀ⋆｡
 
 ###  ₊˚.⋆  Connect with me on <a href="www.linkedin.com/in/hannahlluu">LinkedIn</a>⋆⁺₊✧
 
