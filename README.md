@@ -4,6 +4,7 @@
 
 ###  ˚ ༘ ˚ Currently learning <b>JavaScript</b>  ೀ⋆｡
 
-###  ₊˚.⋆  Connect with me on <a href="www.linkedin.com/in/hannahlluu">LinkedIn</a>⋆⁺₊✧
-
 ###  ‎₊˚✧  Contact me at luuh@tcd.ie ✧˚₊‧
+
+###  ₊˚.⋆  Connect with me: 
+<a href="www.linkedin.com/in/hannahlluu">www.linkedin.com/in/hannahlluu</a> ⋆⁺₊✧
