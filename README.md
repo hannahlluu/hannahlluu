@@ -7,4 +7,4 @@
 ###  ‎₊˚✧  Contact me at luuh@tcd.ie ✧˚₊‧
 
 ###  ₊˚.⋆  Connect with me: 
-<a href="www.linkedin.com/in/hannahlluu">www.linkedin.com/in/hannahlluu</a> ⋆⁺₊✧
+<a>https://www.linkedin.com/in/hannahlluu/</a>⋆⁺₊✧
