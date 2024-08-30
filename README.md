@@ -2,7 +2,7 @@
 
 ### ₊˚ෆ Computer Science student @ Trinity College Dublin. ೄྀ࿐ˊˎ-
 
-###  ˚ ༘ ˚ Currently learning <b>JavaScript</b>  ೀ⋆｡
+###  ˚ ༘ ˚ Currently learning<b>JavaScript</b>  ೀ⋆｡
 
 ###  ‎₊˚✧  Contact me at luuh@tcd.ie ✧˚₊‧
 
